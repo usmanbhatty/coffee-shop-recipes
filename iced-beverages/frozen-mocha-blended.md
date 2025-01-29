@@ -27,4 +27,4 @@
 
 ### Step 4
 
-- Top with whipped cream and chololate shavings.
+- Top with whipped cream and chololate shavings. Bhatty style!
